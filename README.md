@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Danielle Brown
 
 ✌️ University of Southern California
 📱 First tech I owned was an iPod
